@@ -1,2 +1,2 @@
-# katie82-github.io
+# katie82@github.io
 Shopping mall
